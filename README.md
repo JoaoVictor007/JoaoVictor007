@@ -1,4 +1,4 @@
-# 👋 Colé, me chamo João
+# 👋 Salve, mano Rosa aqui!
 - 👀 17 y. 
-- 🌱 Gosto de desenhar e fotografar.
-- 💞️ Tenho interesse em me tornar um tatuador. 
+- 🌱 Desenhista e editor (fotos/vídeos).
+- 💞️ Eu não sei o que quero ser, mas sei muito bem o que não quero me tornar. "Friedrich Nietzsche". 
